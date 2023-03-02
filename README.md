@@ -1,0 +1,1 @@
+# JasonStalkingMe_IKnowTheTranslationOfTheBadWordTurkish_JasonDoMakeSureItsOneWithGoodBreeding
